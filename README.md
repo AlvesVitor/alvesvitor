@@ -19,5 +19,4 @@
   
 </div><br/>
 
-Apaixonado por tecnologia, musica e futebol.
 
