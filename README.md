@@ -22,4 +22,3 @@
 
 Apaixonado por tecnologia e música 💻🎸😀
 
-](https://github.com/anuraghazra/github-readme-stats)
