@@ -20,5 +20,4 @@
   
 </div><br/>
 
-Apaixonado por tecnologia e música 💻🎸😀
 
